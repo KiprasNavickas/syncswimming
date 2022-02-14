@@ -1,0 +1,1 @@
+https://kipras.tech/sinchronizuotas-bitu-plaukimas
